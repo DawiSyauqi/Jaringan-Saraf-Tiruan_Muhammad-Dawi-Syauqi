@@ -1,0 +1,1 @@
+# Jaringan-Saraf-Tiruan_Muhammad-Dawi-Syauqi
